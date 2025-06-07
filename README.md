@@ -1,0 +1,7 @@
+![Apresentação CineFiles_Prancheta 1 2](https://github.com/user-attachments/assets/d44b7606-29ca-466f-b896-a55464daf088)
+![Apresentação CineFiles_Prancheta 1 3](https://github.com/user-attachments/assets/2dde67db-87b6-4c43-a484-dffc84897ea0)
+![cinefiles3](https://github.com/user-attachments/assets/bdf1861f-e0d2-457f-9a56-6fdfd2a8bd37)
+![cinefiles4](https://github.com/user-attachments/assets/b247f770-d3e7-4eef-a88d-5bfcc50cad9b)
+![cinefiles5](https://github.com/user-attachments/assets/11d49f99-57df-4aaf-90fa-37e8f0e8d604)
+![cinefiles6](https://github.com/user-attachments/assets/65bbe8cd-bb00-4540-81ae-562f4738a61e)
+![cinefiles7](https://github.com/user-attachments/assets/0c669aed-8e33-4f5b-b72f-13abf51feb2e)
